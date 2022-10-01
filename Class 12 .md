@@ -6,5 +6,5 @@
 
 [Chemistry](https://www.khanacademy.org/science/class-12-chemistry-india)
 
-[Biology](https://www.khanacademy.org/science/class-12-biology-india)
+[Biology](https://www.khanacademy.org/science/in-in-class-12-biology-india)
 
