@@ -1,4 +1,4 @@
-## Class 7 subjects👇
+## Class 8 subjects👇
 
 [Maths NCERT INDIA](https://www.khanacademy.org/math/in-in-class-8th-math-cbse)
 
