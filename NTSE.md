@@ -1,3 +1,3 @@
-## NTSE all subjects👇
+## RRB all subjects👇
 
-[NTSE ALL SUBJECTS](https://www.magnetbrains.com/courses/ntse-full-video-course/)
+[RRB ALL SUBJECTS MAGNETBRAINS](https://www.magnetbrains.com/courses/rrb-full-video-course/)
