@@ -1,4 +1,4 @@
-## UP HINDI MEDIUM  FULL COURSE👇
+## UP BOARD  FULL COURSE👇
 
 [CLASS 7 UP BOARD MAGNET BRAINS](https://www.magnetbrains.com/courses/up-board-class-7th-full-video-course/)
 
