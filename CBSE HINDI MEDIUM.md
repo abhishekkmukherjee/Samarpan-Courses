@@ -16,6 +16,9 @@
 [CLASS 11 HINDI MEDIUM MAGNET BRAINS](https://www.magnetbrains.com/courses/ncert-class-11th-hindi-medium-full-video-course/)
 
 
+[CLASS 12 HINDI MEDIUM MAGNET BRAINS](https://www.magnetbrains.com/courses/ncert-class-12th-hindi-medium-full-video-course/)
+
+
 
 [CBSE NCERT EXEMPLAR MAGNET BRAINS](https://www.magnetbrains.com/courses/ncert-exemplar-solutions-of-class-6th-to-12th-hindi-medium-full-video-course/)
 
